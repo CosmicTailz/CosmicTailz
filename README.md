@@ -15,9 +15,15 @@ between CrisXolt's "4JD UI" pack, and AgentMindStorm's "Console Aspects" pack, b
 for yourself! :D
 
 You can reach me on a wide variety of different platforms, but you'll have the best luck trying to reach out to me on Twitter.
+
 YouTube: https://www.youtube.com/channel/UCXO-a6gVUNYK1PWlz_hzcFg
+
 Twitter: https://twitter.com/CosmicTailz
+
 Discord: CosmicTailz#9265
+
 Hypixel Forums: https://hypixel.net/members/cosmictailz.3612877/
+
 VG Resource: https://www.vg-resource.com/user-80467.html
+
 You can find me everywhere else simply by searching "CosmicTailz"
